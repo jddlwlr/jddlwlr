@@ -6,18 +6,18 @@ In 2007, at Georgia Perimeter College I took an intro geology course, and loved 
 
 ## Right now
 
-🖥️ I'm probably working on bootcamp homework.
-🍼 Taking care of a rambunctious two year old.
-⛷️ Hitting the slopes around Missoula, MT. 
-📺 Binge watching shows with my wife.
-👨🏻‍💻 Or researching jobs and/or technologies.
+🖥️ I'm probably working on bootcamp homework.  
+🍼 Taking care of a rambunctious two year old.  
+⛷️ Hitting the slopes around Missoula, MT.   
+📺 Binge watching shows with my wife.  
+👨🏻‍💻 Or researching jobs and/or technologies.  
 
 ## Future
 
-👷🏻‍♂️ I hope to begin a career as a developer.
-🏫 Continue my journey, learn new languages and technologies.
-✈️ Explore new places with my family. 
+👷🏻‍♂️ I hope to begin a career as a developer.  
+🏫 Continue my journey, learn new languages and technologies.  
+✈️ Explore new places with my family.   
 
 ## Contact me! 
-Send me and email: Jedd.Lawler@gmail.com
-Find me on linkedin: linkedin.com/jddlwlr
+Send me and email: Jedd.Lawler@gmail.com  
+Find me on linkedin: linkedin.com/jddlwlr  
