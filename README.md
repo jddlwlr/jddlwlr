@@ -20,4 +20,4 @@ In 2007, at Georgia Perimeter College I took an intro geology course, and loved 
 
 ## Contact me! 
 Send me and email: Jedd.Lawler@gmail.com  
-Find me on linkedin: ![linkedin.com/jddlwlr](https://linkedin.com/jddlwlr) 
+Find me on linkedin: [linkedin.com/jddlwlr](https://linkedin.com/jddlwlr) 
