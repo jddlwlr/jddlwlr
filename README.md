@@ -18,6 +18,6 @@ In 2007, at Georgia Perimeter College I took an intro geology course, and loved 
 🏫 Continue my journey, learn new languages and technologies.  
 ✈️ Explore new places with my family.   
 
-## Contact me! 
+## Contact me
 Send me and email: Jedd.Lawler@gmail.com  
 Find me on linkedin: [linkedin.com/jddlwlr](https://linkedin.com/jddlwlr) 
