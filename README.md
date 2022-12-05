@@ -6,11 +6,11 @@ In 2007, at Georgia Perimeter College I took an intro geology course, and loved 
 
 ### Right now
 
-🖥️ I'm probably working on bootcamp homework.  
+🖥️ I'm probably applying for jobs.  
 🍼 Taking care of a rambunctious two year old.  
 ⛷️ Hitting the slopes around Missoula, MT.   
 📺 Binge watching shows with my wife.  
-👨🏻‍💻 Or researching jobs and/or technologies.  
+👨🏻‍💻 Or researching tech 
 
 ### Future
 
